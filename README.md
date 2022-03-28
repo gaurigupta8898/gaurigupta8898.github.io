@@ -1,1 +1,1 @@
-# gauriCodes.github.io
+gaurigupta8898.github.io
